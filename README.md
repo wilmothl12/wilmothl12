@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @wilmothl12, Logan Wilmoth.
+- 👀 I’m interested in opportunities in Software Development, Cybersecurity, Finance, Marketing, or Business Management. 
+- 🌱 I’m currently a Computer Engineering major at Villanova University with a minor in Business and declared minors in Cybersecurity and Computer Science.
+- 📫 How to reach me: lwilmoth@villanova.edu | 215-837-5408 | www.linkedin.com/in/logan-wilmoth
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am very invested in golfing, skiing and fishing.
+- In my free time I like to do research managing my personal investment portfolio and research relevant current events.
